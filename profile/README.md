@@ -4,6 +4,8 @@
 
 ## [More Unblocked Games](https://github.com/Unblocked-Games-Online/.github)
 
+## [Sprunki Game Unblocked](https://github.com/sprunki-phase-1-mod-play-online)
+
 ![sddefault](https://github.com/user-attachments/assets/c9563e95-ada6-4e3e-af1e-230eeef5c15b)
 
 Retro Bowl is a popular American football game that combines retro-style graphics with engaging gameplay. For those looking to enjoy the game without restrictions, accessing "Retro Bowl Unblocked" versions is the perfect solution.
